@@ -2,7 +2,7 @@
 - 👀 I’m interested in ... Gaming (especially retro) Gotta keep the games of OLD Alive
 - 💞️ I’m looking to collaborate on ... Mario Bros. VGA/ Joust/ Stickman Lives Registered versions of these games sold on (steam/ GOG/ Eneba/) 
 - How to reach me Simeacal@mail.com
-- Reddit.com/user/SimeaCal87
+- https://www.Reddit.com/user/SimeaCal87
 
 https://www.reddit.com/user/SimeaCal87/comments/vze1o2/bbemulatorexe_how_to_make_program_work_windows_7/
 https://www.reddit.com/user/SimeaCal87/comments/vxstoh/legal_legal_legal_methood_to_get_playstation_bios/
